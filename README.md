@@ -1,4 +1,4 @@
 used for pony town , sign ata and straw :D !
 . https://celestez.atabook.org/
 
-https://i.imgur.com/qYznwgc.gif
+https://media.tenor.com/SeSClWpFOyEAAAAM/kanade-yoisaki-kanade.gif
