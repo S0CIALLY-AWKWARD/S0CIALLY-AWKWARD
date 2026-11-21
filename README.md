@@ -1,4 +1,4 @@
-﹒　sign ata and draw on straw for a free adopt me dog   ◡◡ ﹒  💉
+﹒　sign ata + draw on straw for a free adopt me dog   ◡◡ ﹒  💉
 
   .   ´🌈｀.  ׄ: . https://celestez.atabook.org/  .   https://strawberrypanic.straw.page
 
